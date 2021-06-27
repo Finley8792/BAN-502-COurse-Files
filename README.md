@@ -1,1 +1,1 @@
-# BAN-502-COurse-Files
+# BAN-502-Course-Files
